@@ -1,0 +1,1 @@
+I spent two months abroad back in the winter of 2012, trolled through Germany, Czech Republic, Austria and Italy. Was easily one of my favorite vacations I've ever taken, and also the first time I'd traveled solo. Terrifying, but uniquely rewarding experience. 
