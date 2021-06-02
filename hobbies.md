@@ -1,0 +1,1 @@
+I really enjoy hiking and camping in the warmer months, and have recently developed a love of cooking, specifically cooking Mexican cuisine. In the colder months, skiing and snowshoeing are my go-to outdoor activities. 
